@@ -32,3 +32,4 @@ Since 1974, World Environment Day has been started celebrating as an annual even
 
 There was a turning point in the year 1972, the development of international environmental politics that is the first major conference on the issues of environment was convened under the United Nations from 5-16 June in Stockholm. It was also known as the Conference on the Human Environment or the Stockholm Conference. Its aim was to commonly look into the challenge of preserving and enhancing the human environment. Then, on 15 December in the same year, the General Assembly adopted a resolution designating 5 June as World Environment Day. Further, another resolution was adopted by the General Assembly on 15 December that led to the creation of the United Nations Environment Programme (UNEP). First time World Environment Day was celebrated in 1974 with the slogan "Only one Earth".
 
+thanks for visiwebting my website.............
